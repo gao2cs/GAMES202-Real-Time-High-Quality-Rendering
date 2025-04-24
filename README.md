@@ -1,5 +1,5 @@
 # GAMES202
 
-Prof.Lingqi Yan
+Prof. Lingqi Yan
 
-Homework 2 Interreflection(Unsure)
+Homework 2 Interreflection (Not sure if done correctly)
