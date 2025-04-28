@@ -2,4 +2,4 @@
 
 Prof. Lingqi Yan
 
-Homework 2 Interreflection (Not sure if done correctly)
+Homework 2 Inter-Reflections (Don't think were done correctly)
